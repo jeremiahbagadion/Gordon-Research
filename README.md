@@ -1,1 +1,1 @@
-# KAN-Gordon
+# Jeremiah Bagadion research with Gordon
